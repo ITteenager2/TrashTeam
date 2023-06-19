@@ -1,0 +1,2 @@
+# TrashTeam
+team da pizd
